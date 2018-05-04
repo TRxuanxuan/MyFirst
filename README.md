@@ -1,2 +1,0 @@
-# MyFirst
-good good study
